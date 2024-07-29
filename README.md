@@ -11,5 +11,5 @@ YT: https://youtube.com/@franciscardou?si=hSYkVUiTSMPHR54M
 
 SC: https://on.soundcloud.com/7x7ye
 
-TWITCH: twitch.tv/franciscardou7 
+TWITCH: https://www.twitch.tv/franciscardou7
 
