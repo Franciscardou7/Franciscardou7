@@ -1,4 +1,3 @@
-
 Hola soy Franciscardou.
 Hago música. 
 Hago streams en twitch.
