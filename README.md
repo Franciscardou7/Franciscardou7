@@ -4,6 +4,7 @@ Hago música.
 Hago streams en twitch.
 Tengo rango streamer en un server de minecraft.
 Juego roblox.
+Me gusta southpark.
 
 IG: https://www.instagram.com/franciscardou?igsh=cHQ4cDI4Nzc2YzVy
 
