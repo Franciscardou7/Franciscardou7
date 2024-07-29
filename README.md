@@ -1,16 +1,15 @@
-## Hi there 👋
 
-<!--
-**Franciscardou7/Franciscardou7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hola soy Franciscardou
+-hago música 
+-hago streams en twitch
+-tengo rango streamer en un server de minecraft
+-juego roblox 
 
-Here are some ideas to get you started:
+IG: https://www.instagram.com/franciscardou?igsh=cHQ4cDI4Nzc2YzVy
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+YT: https://youtube.com/@franciscardou?si=hSYkVUiTSMPHR54M
+
+SC: https://on.soundcloud.com/7x7ye
+
+TWITCH: twitch.tv/franciscardou7 
+
